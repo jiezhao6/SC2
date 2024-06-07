@@ -1,1 +1,1 @@
-# SC2
+Coming Soon
